@@ -1,1 +1,1 @@
-[mi perfil en github](https://github.com/gdiego-2718281)
+[mi perfil en twitter](https://twitter.com/home?lang=en)
